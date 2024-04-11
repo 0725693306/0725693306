@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking for an inspiration 
 - 📫 How to reach me: 0725693306
-- 😄 Pronouns: I
+- 😄 Pronouns: Me, Myself and I
 - ⚡ Fun fact: I'm fun to hang out with
 
 <!---
